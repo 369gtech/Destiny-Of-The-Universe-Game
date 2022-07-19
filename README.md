@@ -1,1 +1,3 @@
-# Destiny-Of-The-Universe-Game
+<h1>Destiny Of The Universe Game</h1>
+<p>Destiny Of The Universe Game Destiny Of The Universe Game Prologue leads the story line of Destiny Of The Universe Game. The game is based on the history of the Human Race leading the Galactic Alliance 4 Billions years ago. That Alliance ultimately fails with treachery so moving forward it plays out again today with a new war which includes 12 Blockchain Factions - Signum, Ethereum, Solana, Polkadot, DOGE, Pirate Chain, Dragonchain, Koinos, Hive, Wax, BSC and Zill. Each Faction battles it our for the Supremacy of the Universe. This game will be very similar to Splinterlands but with many unique features of its own like the Inter-Faction Tournaments, Open-Faction Tournaments, Social-Sustainability between The Metaverse and The Real World with more to be released when the game starts.
+</p>
